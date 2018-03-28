@@ -1,0 +1,1 @@
+## MGroup Digital Studio events-test-task
